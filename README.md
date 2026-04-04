@@ -5,7 +5,6 @@ cuddling and covering is encouraged!
 
     ♡ kinger 2/4/26 ♡
 𓎢𓎟𓎟𓎡
- -> ![](https://pbs.twimg.com/media/HExoWU6WoAMrAjp?format=jpg&name=small){px:40:40} ->
 　**it** / he ʚɞ adult . ageless
 
  -13 dni.
@@ -16,6 +15,7 @@ cuddling and covering is encouraged!
 caine introject ! 
 　　 ᵗᵃᵈᶜ ᶠᵃⁿᵈᵒᵐ ᶦʷᶜ. ᶦⁿᵗʳᵒʲᵉᶜᵗˢ ᶦʷᵛᵛᵉᶜ.
 n1 royalteeth fan .. that's my bf.
+ -> ![](https://pbs.twimg.com/media/HExoWU6WoAMrAjp?format=jpg&name=small) ->
 
 <!--
 **royalteeth/royalteeth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
