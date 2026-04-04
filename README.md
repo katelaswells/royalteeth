@@ -16,7 +16,7 @@ caine introject !
 　　 ᵗᵃᵈᶜ ᶠᵃⁿᵈᵒᵐ ᶦʷᶜ. ᶦⁿᵗʳᵒʲᵉᶜᵗˢ ᶦʷᵛᵛᵉᶜ.
 n1 royalteeth fan .. that's my bf.
  ![](https://x.com/royalteethh/status/2039119481239199786/photo/1)
-</div>
+
 
 <!--
 **royalteeth/royalteeth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
