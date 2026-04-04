@@ -16,7 +16,7 @@ caine introject !
 　　 ᵗᵃᵈᶜ ᶠᵃⁿᵈᵒᵐ ᶦʷᶜ. ᶦⁿᵗʳᵒʲᵉᶜᵗˢ ᶦʷᵛᵛᵉᶜ.
 n1 royalteeth fan .. that's my bf.
 <div width="300">
-  ![][path/to/image.png](https://pbs.twimg.com/media/HExoWU6WoAMrAjp?format=jpg&name=small)
+  ![](https://pbs.twimg.com/media/HExoWU6WoAMrAjp?format=jpg&name=small)
 </div>
 
 <!--
