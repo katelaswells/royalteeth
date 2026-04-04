@@ -15,7 +15,7 @@ cuddling and covering is encouraged!
 caine introject ! 
 　　 ᵗᵃᵈᶜ ᶠᵃⁿᵈᵒᵐ ᶦʷᶜ. ᶦⁿᵗʳᵒʲᵉᶜᵗˢ ᶦʷᵛᵛᵉᶜ.
 n1 royalteeth fan .. that's my bf.
- ![](https://pbs.twimg.com/media/HExoWU6WoAMrAjp?format=jpg=60x60)
+ ![](https://pbs.twimg.com/media/HExoWU6WoAMrAjp?format=jpg | width=50)
 
 
 <!--
