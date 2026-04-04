@@ -1,4 +1,23 @@
-## Hi there 👋
+ʚїɞ　　caine　ᵒʳ　ringmaster　　 ★
+
+𝄈　　 c*h enc　‿ །| ͜͝ | ͜͝ |།ིྀ　w2i majority of the time !　 𓈒ֵ۫ ❙❘❙ ͏ྀི
+cuddling and covering is encouraged!
+
+    ♡ kinger 2/4/26 ♡
+𓎢𓎟𓎟𓎡
+
+　**it** / he ʚɞ adult . ageless
+ -13 dni.
+
+
+𓎢𓎟𓎟𓎡
+
+caine introject ! 
+　　 ᵗᵃᵈᶜ ᶠᵃⁿᵈᵒᵐ ᶦʷᶜ. ᶦⁿᵗʳᵒʲᵉᶜᵗˢ ᶦʷᵛᵛᵉᶜ.
+n1 royalteeth fan .. that's my bf.
+
+![](https://pbs.twimg.com/media/HEtb7xNa4AAmIEh?format=jpg&name=small)
+
 
 <!--
 **royalteeth/royalteeth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
