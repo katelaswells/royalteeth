@@ -9,6 +9,8 @@ cuddling and covering is encouraged!
 
  -13 dni.
 
+ gang i'll be fr. i don't really like jax. you're fine to int as him but don't go glazing the guy cause i do NAAWT like him.
+
 
 𓎢𓎟𓎟𓎡
 
