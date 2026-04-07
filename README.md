@@ -9,7 +9,7 @@ cuddling and covering is encouraged!
 
  -13 dni.
 
- gang i'll be fr. i don't really like jax. you're fine to int as her but don't go glazing the gal cause i do NAAWT like her. i understand her backstory, don't get me wrong, i just don't support her actions and do like like her.
+ gang i'll be fr. i don't really like jax. you're fine to int as her but don't go glazing the gal cause i do NAAWT like her. i understand her backstory, don't get me wrong, i just don't support her actions and do not like her.
 
 
 𓎢𓎟𓎟𓎡
