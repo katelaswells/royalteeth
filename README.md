@@ -1,3 +1,5 @@
+i understand if you don't like royalteeth but please please don't hide me you can mute me but it actually makes me so upset ☹ i've gen bawled my eyes out over cool people hiding me twice now. my partner is a kinger introject. i am a caine introject. it's mainly why it's my preference in the first place
+
 ʚїɞ　　caine　ᵒʳ　ringmaster　　 ★
 
 𝄈　　 c*h enc　‿ །| ͜͝ | ͜͝ |།ིྀ　w2i majority of the time !　 𓈒ֵ۫ ❙❘❙ ͏ྀི
